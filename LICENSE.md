@@ -1,4 +1,4 @@
-
+3008 Scripts exclusive is the best 3008 Script, featuring undetectable and auto-collect. Safe and powerful for all your needs.
 
 
 
